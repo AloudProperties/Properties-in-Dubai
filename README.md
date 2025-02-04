@@ -1,9 +1,10 @@
 [Properties   Finder in Dubai](https://aloud-properties.com/).    
 --
-[Studio   Apartments for Sale in Dubai](https://aloud-properties.com/studio-apartments-for-sale-in-dubai/)    
-[Serviced   Apartments for Sale in JVC](https://aloud-properties.com/property/serviced-apartments-for-sale-in-jvc/)    
-[LUXURY   APARTMENTS in Dubai](https://aloud-properties.com/luxury-apartments/)   
-[Luxury   Villas and Townhouses in Dubai](https://aloud-properties.com/luxury-villas-and-townhouses/)
+[Studio Apartments for Sale in Dubai](https://aloud-properties.com/studio-apartments-for-sale-in-dubai/)    
+[Serviced Apartments for Sale in JVC](https://aloud-properties.com/property/serviced-apartments-for-sale-in-jvc/)    
+[LUXURY APARTMENTS in Dubai](https://aloud-properties.com/luxury-apartments/)   
+[Luxury Villas and Townhouses in Dubai](https://aloud-properties.com/luxury-villas-and-townhouses/)
+
 [MEYDAN TOWNHOUSES FOR SALE](https://aloud-properties.com/property/meydan-townhouses-for-sale/)    
 [TOWNHOUSE FOR SALE IN MEYDAN](https://aloud-properties.com/property/townhouse-for-sale-in-meydan/)    
 [Villa For Sale in Palm Jumeirah](https://aloud-properties.com/property/villa-for-sale-in-palm-jumeirah/)    
